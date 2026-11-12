@@ -10,8 +10,8 @@
 
 
 # ‧₊˚✧[Написать в ЛС]✧˚₊‧
-*• 🔵 ТГ: @gap0135\
-• 👤 ДС: @gapzip*
+***• 🔵 ТГ:*** *@gap0135*\
+• 👤 ***ДС:*** *@gapzip*
 
 <img width="1917" height="1080" alt="Без названия297_20260814142247" src="https://github.com/user-attachments/assets/12084175-c1fa-4550-90b8-a94ac86cd091" />
 
