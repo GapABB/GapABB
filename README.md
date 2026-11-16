@@ -22,10 +22,15 @@
 • 🌸 [Twitch](https://www.twitch.tv/gap_zip)\
 • 💀 [Второй ТГК](https://t.me/oldhorizons)\
 • 🍿 [Пробел Live](https://youtube.com/channel/UC6pyfcTkGU7JnKAS1y8w-JQ?si=xWZs7QN_XCvPjyZG)\
-• 🐂 [Old Horizons](https://youtube.com/@oldhorizons?si=gEBUlfJlUZY3gdfJ)\
+• 🐂 [Old Horizons YouTube](https://youtube.com/@oldhorizons?si=gEBUlfJlUZY3gdfJ)\
 • 📨 [Gmail](mailto:oldhorizonsofficial@gmail.com)
 
 <img width="1920" height="1080" alt="Без названия307_20260922210014" src="https://github.com/user-attachments/assets/8f043ffe-2a22-4a05-9ca4-d8e60a515a7a" />
+
+# ‧₊˚✧[Сайты]✧˚₊‧
+• 📑 [Основной](https://gapabb.github.io/Site/)
+
+<img width="3200" height="1800" alt="1000860505" src="https://github.com/user-attachments/assets/3f1d8e8b-60dc-4f26-a46b-25ddeb26f3d9" />
 
 # ‧₊˚✧[Скачать SP]✧˚₊‧
 • 🗑️ [Трешбокс](https://trashbox.ru/topics/192503/old-horizons)\
@@ -37,8 +42,14 @@
 
 <img width="1200" height="675" alt="dd" src="https://github.com/user-attachments/assets/3bb5652e-9bd9-4385-bd1c-efc37a933837" />
 
+# ‧₊˚✧[Скачать ШШ]✧˚₊‧
+• 🗑️ [Трешбокс](https://trashbox.ru/topics/193204/shizo-shar)\
+• 🎮 [itch.io](https://gap-apk.itch.io/schizoball)\
+• 🐱 [GitHub](https://github.com/One-Studio-SPGD/Schizo-Ball)\
+• ✒️ [Zoro Game Store](https://zoro-game.store/game?id=game_6ad88e40c624b)\
+• ⚡ [Game Jolt](https://gamejolt.com/games/Schizo-ball/995239)
+
 # ‧₊˚✧[Другое]✧˚₊‧
-• 🎱 [Шизо-Шар](https://github.com/One-Studio-SPGD/Schizo-Ball)\
 • 🤖 [Бот](https://t.me/gapapkbot)\
 • 🎵 [Музыка для видео](https://youtube.com/playlist?list=PLuN0AHwqNaluuNvvZQ9T8HXt0ogvzC0Xm&si=qmuRwiphPrN96J1p)\
 • 🏮 [Фоны для видео](https://youtube.com/playlist?list=PLuN0AHwqNalsfJESTWpDBtu6kYtpXCdZ8&si=jriGn2EJWtfJfme6)\
