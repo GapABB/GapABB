@@ -49,6 +49,8 @@
 • ✒️ [Zoro Game Store](https://zoro-game.store/game?id=game_6ad88e40c624b)\
 • ⚡ [Game Jolt](https://gamejolt.com/games/Schizo-ball/995239)
 
+<img width="1280" height="1280" alt="1000860507" src="https://github.com/user-attachments/assets/841be683-d090-46ee-83b2-8fe857478c92" />
+
 # ‧₊˚✧[Другое]✧˚₊‧
 • 🤖 [Бот](https://t.me/gapapkbot)\
 • 🎵 [Музыка для видео](https://youtube.com/playlist?list=PLuN0AHwqNaluuNvvZQ9T8HXt0ogvzC0Xm&si=qmuRwiphPrN96J1p)\
