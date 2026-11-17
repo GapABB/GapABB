@@ -52,12 +52,23 @@
 <img width="1280" height="1280" alt="1000860507" src="https://github.com/user-attachments/assets/841be683-d090-46ee-83b2-8fe857478c92" />
 
 # ‧₊˚✧[Другое]✧˚₊‧
+• 🥀 [One Studio](https://github.com/One-Studio-SPGD)\
+• ⏱️ [One Studio Catrobat](https://share.catrobat.org/app/studio/bbad8916-09a1-444d-85b7-bcb63c1f6797)\
 • 🤖 [Бот](https://t.me/gapapkbot)\
+• 👨🏻‍⚖️ [Прøбе́льный Чат](https://t.me/GapZipChat)\
+• 🔭 [Old Horizons Chat](https://t.me/oldhorizonschat)\
+• 📨 [Правила](https://t.me/Gap_Zip/1976)\
+• 😎 [Инфа в ТГ](https://t.me/GapAPK)\
+• 😾 [Статистика Инфы](https://tgstat.ru/channel/@GapAPK/stat)\
+• 😐 [Статистика основы](https://tgstat.ru/channel/@Gap_Zip/stat)\
+• 🗿 [Статистика SP](https://tgstat.ru/channel/@oldhorizons/stat)\
 • 🎵 [Музыка для видео](https://youtube.com/playlist?list=PLuN0AHwqNaluuNvvZQ9T8HXt0ogvzC0Xm&si=qmuRwiphPrN96J1p)\
 • 🏮 [Фоны для видео](https://youtube.com/playlist?list=PLuN0AHwqNalsfJESTWpDBtu6kYtpXCdZ8&si=jriGn2EJWtfJfme6)\
 • 🐕 [CCode туториалы](https://youtube.com/playlist?list=PLuN0AHwqNalsQ9JfqR7uOk8Okv4luvohY&si=zcQ09ilymeR4YeJP)\
+• 📀 [SPРМ Дема](https://play.catrobat.org/a5fc5ddcd8a2/index.html#8d9805d0-24d0-4e81-968e-933b81973291)\
 • 📑 [Стикер Пак](https://t.me/addstickers/LOLOG228)\
 • 📀 [GoreForge](https://discord.gg/PTTbpNsXTE)\
+• 🤖 [Что за боты?](https://telegra.ph/Boty-Pr%C3%B8belnyj-CHata-11-10E)\
 • 🍀 [Скачать SRP](https://play.google.com/store/apps/details?id=com.joyjetgames.ragbollstickimanssanbdox)
 
 <img width="1917" height="1080" alt="Фон" src="https://github.com/user-attachments/assets/9378ca91-b4c9-487f-9f75-f1249811cfbf" />
