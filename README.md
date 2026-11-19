@@ -1,7 +1,7 @@
 <img width="600" height="599" alt="logo" src="https://github.com/user-attachments/assets/f9d5c694-174d-4400-9be3-eb13635933fe" />
 
 
-#  ‧₊˚✧[Инфа]✧˚₊‧ 
+#  ‧₊˚✧[Инфа]✧˚₊‧
 ***❬🔎❭・Сижу в комьюнити:***\
 *Melon Playground, Kselebox, Fruit Playground, SRP, Solar Smash'ы, Geometry Dash, WorldBox, Cells, GoreBox, Building Destruction, Project VOX, Pocket Code и CCode.*\
 *Увлекаюсь физикой, космосом и прочим, делаю игру на CCode и ютубер.*
